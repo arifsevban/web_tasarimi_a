@@ -1,0 +1,1 @@
+bu derste deneme kodudur.
